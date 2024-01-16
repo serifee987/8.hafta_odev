@@ -1,0 +1,1 @@
+# 8.hafta_odev
